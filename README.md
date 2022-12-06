@@ -1,2 +1,2 @@
-# Kush-jam-une
-Prezantim i shkurte ne pake fjale.
+# Prezantim i shkurte ne pake fjale.
+
